@@ -1,4 +1,9 @@
-### Hi there 👋
+### Oi
+
+- Me chamo Anny, tenho 15 anos
+- Sou estudante, atualmente estudo no0 CECMPS
+- Instagran:_anny_.gabrielly
+
 
 <!--
 **florzinhaanny/florzinhaanny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
