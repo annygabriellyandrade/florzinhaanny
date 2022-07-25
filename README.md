@@ -1,7 +1,7 @@
 ### Oi
 
 - Me chamo Anny, tenho 15 anos
-- Sou estudante, atualmente estudo no0 CECMPS
+- Sou estudante, atualmente estudo no CECMPS
 - Instagran:_anny_.gabrielly
 
 
